@@ -3,7 +3,7 @@ Red Velvet Cake
 
 Red velvet Cake Ingrediants are.....
 
-1/2 cup of unsalted butter (room temperature) (115g),
+(1) 1/2 cup of unsalted butter (room temperature) (115g),
 1 1/2 cups of white granulated sugar (300g),
 2 Large eggs (add one at a time),
 2 Tbsp. unsweetened cocoa powder (24g),
